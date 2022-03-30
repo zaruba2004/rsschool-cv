@@ -1,1 +1,1 @@
-https://zaruba2004.github.io/rsschool-cv/cv
+https://zaruba2004.github.io/rsschool-cv/
